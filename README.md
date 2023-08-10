@@ -1,2 +1,0 @@
-# Praneeth18
-Resume
